@@ -1,2 +1,1 @@
-# Alejor07.github.io
-Sitio personal
+# Bienvenido a la pagina de Alejo
